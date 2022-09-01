@@ -1,5 +1,5 @@
-### Hi there 👋
-
+### 🌸   I'm Hisu 
+### 🌙 Ser exitoso = Tener una práctica de 10
 <!--
 **Hisuner/Hisuner** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
