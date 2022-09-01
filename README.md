@@ -1,5 +1,5 @@
 ### 🌸   I'm Hisu 
-### 🌙 Follow me in Twitter: @hisuner
+### 🌙 Follow me in Twitter: @hisuner_
 <!--
 **Hisuner/Hisuner** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
