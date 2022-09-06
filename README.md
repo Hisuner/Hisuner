@@ -1,7 +1,7 @@
 ### 🌸   I'm Hisu 
 ### 🌙 Follow me in Twitter: @hisuner_
 ### 🌙 I’m currently working on Cecytem
-### 🌙 I’m looking to collaborate on Ari & Zag
+### 🌙 I’m looking to collaborate on Ari, Zag & Mar
 ### 🌙 Pronouns: Hisu ~ Hisuner 
 <!--
 **Hisuner/Hisuner** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
